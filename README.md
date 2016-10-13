@@ -1,2 +1,1 @@
-# mannyatico.me
-mannyatico's page
+[@mannyatico](twitter.com/mannyatico)
