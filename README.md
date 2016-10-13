@@ -1,1 +1,1 @@
-[@mannyatico](twitter.com/mannyatico)
+[@mannyatico](//twitter.com/mannyatico)
